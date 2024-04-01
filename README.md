@@ -1,4 +1,4 @@
-![layout](https://github.com/sadra7899/Gray-Photo/assets/160615857/fd3005b8-f7a9-450f-b0f7-f15ffb0a427c)Change your photo from this
+Change your photo from this
 
 ![layout](https://github.com/sadra7899/Gray-Photo/assets/160615857/a50c0f4d-d4c9-4785-85c5-c47696caec42)
 
